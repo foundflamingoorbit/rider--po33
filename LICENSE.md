@@ -1,4 +1,4 @@
-# 
+# Get the ultimate JetBrains Rider for PC | JetBrains Rider for Windows snippet with new JetBrains Rider for PC | JetBrains Rider for Windows Snippet | collaboration-tools +
 
 
 
